@@ -1,0 +1,1 @@
+# 10bilisim-gamze
